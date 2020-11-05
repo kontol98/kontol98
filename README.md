@@ -1,5 +1,5 @@
 <h1 align="center"><b>Ilham Maulana PROFILE </b></h1><br>
-<img src="https://telegra.ph/file/9142e8ab1f494dc7f082d.png" />
+<img src="https://telegra.ph/file/e827f04479eb1d0106590.png" />
 <a href="https://www.reddit.com/user">
   <img align="right" alt="kontol97 Reddit" width="20px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/reddit.svg" />
 </a>
